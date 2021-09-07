@@ -6,16 +6,12 @@
 
 ## Contato
 
-Eliézer Zarpelão
+Alexsandra Oliveira
 
-Linkedin:  [br.linkedin.com/in/eliezerzarpelao](http://br.linkedin.com/in/eliezerzarpelao)
+Linkedin:  www.linkedin.com/in/alexsandra-oliveira-17baa656
 
-WebSite:  [eliezerzarpelao.eti.br](https://eliezerzarpelao.eti.br)
+Instagram:https://www.instagram.com/alexsandra.m.oliv
 
-Instagram:  [instagram.com/eliezerzarpelao](https://instagram.com/eliezerzarpelao)
+Twitter: https://twitter.com/@alexsandra_oli1
 
-YouTube:  [youtube.com/channel/UC47RD-s-U6fpKTY0soIUn6g](https://www.youtube.com/channel/UC47RD-s-U6fpKTY0soIUn6g/featured?view_as=subscriber)
-
-Twitter:  [@eliezerzarpelao](https://twitter.com/eliezerzarpelao)
-
-Github:  [github.com/elizarp](https://github.com/elizarp)
+Github:  https://github.com/alexsandra-oliveira
